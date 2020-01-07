@@ -1,2 +1,0 @@
-# study
-something to study
